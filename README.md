@@ -1,4 +1,4 @@
-### Hey, I'm Yen(Katherine) Hoang 👋 
+### Hey, I'm Yen (Katherine) Hoang 👋 
 
 I'm a 24-year-old data analyst based in Helsinki, and I am passionate about analyzing data, conveying its story and valuable insights to support management with their strategic decisions. 
 
