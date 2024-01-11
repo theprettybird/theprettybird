@@ -2,7 +2,7 @@
 
 I'm a 24-year-old data analyst based in Helsinki, and I am passionate about analyzing data, conveying its story and valuable insights to support management with their strategic decisions. 
 
-- Stay updated with my journey on [Instagram](https://www.instagram.com/katherine.hg_/), [LinkedIn](https://www.linkedin.com/in/yen-hoang-186b091a2/).
+- Stay updated with my journey on [LinkedIn](https://www.linkedin.com/in/yen-hoang-186b091a2/), [Instagram](https://www.instagram.com/katherine.hg_/)
 
 ## 🔭 Current Endeavors 
 
