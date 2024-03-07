@@ -8,7 +8,7 @@ I'm a 24-year-old data analyst based in Helsinki, and I am passionate about anal
 
 Data Analyst with 2+ years of experiences in Helsinki, where my journey involves both building and learning. Here's what I'm currently focused on:
 
-- I'm approaching to design optimized data models, to deliver insightful, clean-looking, and well-performed dasboard.
+- I'm approaching to design optimized data models, to deliver insightful, clean-looking, and well-performed dashboard.
 - I'm exploring different tools and libraries to enhance my skill set.
 - I'm an early riser, always driven and constantly learning in the tech world.
 
