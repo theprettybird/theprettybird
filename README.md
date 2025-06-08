@@ -19,9 +19,9 @@ Data Analyst with 2+ years of experiences in Helsinki, where my journey involves
 
 ## 📫 Contact
 
- For a quick response, DM me on [Instagram](https://www.instagram.com/katherine.hg_/) or [LinkedIn](https://www.linkedin.com/in/yen-hoang-186b091a2/). 
+ For a quick response, DM me on [LinkedIn](https://www.linkedin.com/in/yen-hoang-186b091a2/). 
  
- For professional inquiries, reach out via email at [haiyenhoang124@gmail.com](mailto:haiyenhoang124@gmail.com). 
+ For professional inquiries, reach out via email at [yenhoang041299@gmail.com](mailto:yenhoang041299@gmail.com). 
 
  👋I love discussing about data, so please connect with me!
 
